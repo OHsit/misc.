@@ -1,1 +1,2 @@
-Just disocrd bgs i use or used
+Just discord BG`S I use or used
+:3
